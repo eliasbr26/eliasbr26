@@ -2,7 +2,7 @@
 
 *Fourth-year student at Ecole Polytechnique, IP Paris.*
 
-[elias.ben-rhouma@polytechnique.edu](mailto:elias.ben-rhouma@polytechnique.edu) | [+33 6 24 40 27 39](tel:+33624402739) | [LinkedIn](www.linkedin.com/in/elias-ben-rhouma-0aa860246)
+[elias.ben-rhouma@polytechnique.edu](mailto:elias.ben-rhouma@polytechnique.edu) 
 
 ---
 
